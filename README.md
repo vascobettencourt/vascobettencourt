@@ -10,4 +10,4 @@
 ---
 
 Connect with me:  
-[LinkedIn](https://linkedin.com/in/vascogomesferreira) • [📧 Email Me](mailto:vascogomesferreira@icloud.com)
+[LinkedIn](https://linkedin.com/in/vascogomesferreira)
